@@ -1,4 +1,4 @@
 # sesame
  Files for sesame keyboard flash
 
-making the readme cute <3 <3 
+this readme is now very very tough!
